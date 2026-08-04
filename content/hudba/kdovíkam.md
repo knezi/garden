@@ -2,25 +2,26 @@
 
 1. Vzpomínám na všechny múzy, co jsem za ta léta měl.
 
-Vzpomínám celé mládí.
+	Vzpomínám celé mládí.
 
-Šli kdovíkam, mně zůstala jen snůška marných snů,
+	Šli kdovíkam, mně zůstala jen snůška marných snů,
 
-co kříží plán a svádí.
+	co kříží plán a svádí.
 
   
 
 2. Všechen čas je jenom písek v přesýpacích hodinách,
 
-co před větrem ho brání.
+	co před větrem ho brání.
 
-Leží vlastně jenom na dně spodní baňky napospas
+	Leží vlastně jenom na dně spodní baňky napospas
 
-a loučení je jen zdání.
+	a loučení je jen zdání.
 
   
 
-Ref: Počítám, že se těžko ňáká vrátí.
+Ref:
+Počítám, že se těžko ňáká vrátí.
 
 A že umřu sám.
 
@@ -32,15 +33,16 @@ vždyť vás z druhé strany pořád mám.
 
 3. Počítám, že až se taky vydám ve stopách svých múz.
 
-Kdovíkam kam, než přijde další flám.
+	Kdovíkam kam, než přijde další flám.
 
-Poskládám z kousků všech těch nedopsaných písní kus.
+	Poskládám z kousků všech těch nedopsaných písní kus.
 
-Co celý čas postrádám.
+	Co celý čas postrádám.
 
   
 
-Ref: Tak zatím čus
+Ref:
+Tak zatím čus
 
 Dejte si na mě než se vrátím pívo
 

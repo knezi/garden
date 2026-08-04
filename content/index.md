@@ -24,6 +24,10 @@ And other pages for Drátum:
 
 I'm also a software developer. I might share something in the future here.
 
+# hudba
+
+Náhodné texty a akordy v [[hudba]]
+
 # me
 
 My personal mastodon account at https://mamutovo.cz/@honza
